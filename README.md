@@ -9,7 +9,7 @@ You can else visit my portfolio: https://creper92.tk
 
 Thank you and have a nice day/afternoon/night
 
-## info
+## Info
 
 
 Author: ᄃЯΣPΣЯ92YƬ#5234 - www.creper92.tk - https://github.com/creper92YT
